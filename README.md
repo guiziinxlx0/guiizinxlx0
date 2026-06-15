@@ -9,3 +9,4 @@
   -  🧔 Pronomes: ele/dele
   
     ![](https://media1.tenor.com/m/LdFFy9ZkTy8AAAAd/neymar-puska.gif)
+    ![](https://media1.tenor.com/m/MhpcPDesURYAAAAd/neymar-neymar-jr.gif)
